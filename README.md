@@ -24,11 +24,11 @@ To tarari .. in the place to be
 
 We got GGDAG in the house...
 
-(Gigi D'Agostino Voice)
+(Gigi D'Agostino Voice)  
 Un Deux Trois, Tarari Comme Ci Comme Ça
 One Two Three Tarari the place to be ...
 
-(Albertino Voice)
+(Albertino Voice)  
 We got Alba in the house
 
 If you are ready to party, with Tarari and Tarara...
